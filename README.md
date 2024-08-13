@@ -2,7 +2,16 @@
 
 My pronouns are she/her.    
 
-:pencil: Community Manager, Developer Advocate, & Documentation Writer for [Lagoon](https://github.com/uselagoon) at [amazee.io](https://github.com/amazeeio).   
+:computer: Looking to hire a technical writer, community manager, or developer advocate? Hire me! 🙋🏼‍♀️
+
+👩🏼‍💻 I’m currently looking for a new full-time remote position. 
+
+More about me:
+
+[linkedin.com/in/alannaburke/](linkedin.com/in/alannaburke/)
+
+[alannaburke.github.io](alannaburke.github.io)
+
 :earth_asia: Passionate about Diversity, Equity, Inclusion, and Accessibility.   
 :rabbit: Rescuing guinea pigs and other critters with [Helping All Little Pipsqueaks](http://www.facebook.com/halprescue) and [The Pipsqueakery](http://www.thepipsqueakery.org).
 
