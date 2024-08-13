@@ -8,9 +8,9 @@ My pronouns are she/her.
 
 More about me:
 
-[linkedin.com/in/alannaburke/](linkedin.com/in/alannaburke/)
+[linkedin.com/in/alannaburke/](http://linkedin.com/in/alannaburke/)
 
-[alannaburke.github.io](alannaburke.github.io)
+[alannaburke.github.io](http://alannaburke.github.io)
 
 :earth_asia: Passionate about Diversity, Equity, Inclusion, and Accessibility.   
 :rabbit: Rescuing guinea pigs and other critters with [Helping All Little Pipsqueaks](http://www.facebook.com/halprescue) and [The Pipsqueakery](http://www.thepipsqueakery.org).
